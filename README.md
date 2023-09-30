@@ -1,0 +1,1 @@
+# YC_0605_wstep_do_obiektow
